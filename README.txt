@@ -1,1 +1,1 @@
-Songtext Wind of Change
+wind of change
